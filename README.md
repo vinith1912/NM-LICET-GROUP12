@@ -1,1 +1,0 @@
-# NM-LICET-GROUP14
